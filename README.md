@@ -20,7 +20,7 @@
 ## 🌟 Connect with Me
 
 - 💼 [LinkedIn]: https://www.linkedin.com/in/kshama-s-  
-- 📧 Email: your-email@example.com  
+- 📧 Email: kshamas618@gmail.com 
 
 ---
 
